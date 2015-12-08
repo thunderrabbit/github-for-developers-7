@@ -2,4 +2,4 @@
 
 ## Thunder Rabbit
 
-barefoot, etc
+barefoot, likes blue
